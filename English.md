@@ -1,0 +1,43 @@
+# A Puma at large (10 misstakes - 20240621)
+
+Pumas are large, cat-like animals which are found in America. When reports came into London Zoo that a wild puma had been spotted forty-five miles south of London, they were not taken seriously. However, as the evidence began to accumulate, experts from the zoo felt obliged to investigate, for the descriptions given by people who claimed to have seen the puma were extraordinarily similar.
+
+The hunt for the puma was began in a small village where a woman picking blackberries saw a large cat only five yards away from her. It immediately ran away when she saw it and experts confirmed that a puma will not attack a human being unless it is cornered. The search proved diffcult, for the puma was often observed at one place in the morning and at another place twenty miles away in the evening. Wherever it went, it left behind it a trail of dead deer and small animals like rabbits. Paw prints were seen in a number of places and puma fur was found clinging to bushes. Several people complained of 'cat-like noises' at night and a businessman on a fishing trip saw the puma up a tree. The experts were now fully convinced that the animal was a puma, but where had it come from? As no pumas had been reported missing from any zoo in the country, this one must have been in the posession of a private collector and somehow managed to escape. The hunt went on for several weeks, but the puma was not caught. It is disturbing to think that a dangerous wild animla is still at large in the quiet countryside.
+
+# Thirteen equlas one
+
+Our vicar is always raising money for one cause or another, but he has never managed to get enough money to have the church clock repaired. The big clock which used to strike the hours day and night was damaged many years age and has been silent ever since.
+
+One night, however, our vicar woken up with a start: the clock was struck the hours! Looking at his watch, he saw that it was one o'clock, but the bell struck thirteen times before it stopped. Armed with a torch, the vicar went up into the clock tower to see what was going on. In the torchlight, he caught a sight of a figure whom he immediately recognized as Bill, Wikins, our local grocer.
+
+"Whatever are you doing here, Bill" asked the vicar in surprise. "I'm tring to repair the bell," answered Bill, "I've been coming up here night after night for weeks now, You see, I was hoping to give you a surprise." "You certainly did give me a surprise." said the vicar, "You've probably woken up everyone in the village as well. Still, I'm glad the bell is working again." "That's the trouble, vicar." answered Bill, "It's working all right, but I'm afarid that at one o'clock it will strike thirteen times and there's nothing I can do about it."
+
+"We will get used to it, Bill." said the vicar, "Thirteen as not good as one, but better than nothing. Now let's go downstairs and have a cup of tea."
+
+# An unknown goddess
+
+Some time age, an interesting discovery was made by archaeologists on the Aegean island of Kea. An American team explored a temple which stands in an ancient city on the promontory of Ayia Irini. The city at one time must have been prosperous, for it enjoyed a high level of civilization. Houses, often three storeys hight, were build of stone. They had large rooms with beautifully decorated walls. The city was even equipped a drainage system, for a many clay pipes were found beneath the narrow streets.
+
+The temple which the archaeologists explored was used as one place of worship from the 15th century B.C. until Roman times. In the most sacred room of the temple, clay fragments of 15 statues were found. Each of there represented a goddess and had, at one time, been planted.
+
+The body of one statue was found among remains dating from 15th century B.C. Its missing head happened to be among remains of the 5th century B.C. This head must have been found in Classical times and carefully preserved. It was very old and precious even then. When the archaeologists reconstructed the fragments, they were amazed to find that the goddess turned out to be a very moderm-looking women. She stood three foot high, and her hands resetd on her hips.
+
+She was wearing a full-length skirt which swept the ground. Despite her great age, she was very graceful indeed, but, so far, the archaeologists have been unable to discover her indentity.
+
+# The double life of Alfred Bloggs
+
+These days, people who do manual work often far more money than people who work in offices. People who work in offices are frequently referred to as 'White-collar worker' for the simple reason that they usually wear a collar and tie to go to work. Such is human nature, that a great many people are often willing to scarified higher pay for the privilege of becoming white-collar workers. This can give rise to curious situations, as it did in the case of Alfred Bloggs who worked as a dustman for the Ellesmere Corporation.
+
+When he got married, Alf was too embarrassed to say anything to his wife about his job. He simply told her that he worked for the Corporaction. Every monring, he left home dreesed in a smart black suit. He then changed into overalls and spend eight hourse as a dustman. Before returning home at night. He took a shower and changed back into his suit. Alf did this for over two years and his fellow kept his secret Alf's wife has never discovered that sha married a dustman and she never will, for Alf has just found out another job. He will soon be working in office. He will be earning half as much as he used to, but he feels that his rise in status is well worth the loss of money. From now on, he will wear a suit all day and others will call him 'Mr Bloggs' not 'Alf'.
+
+# The facts
+
+Editors of newspaper and magazines often go to extremes to provide thire readers with unimportant facts and statistics. Last year a journalist had been instructed by a well-known magazin to write an article on the president's palace in a new African republic. When article arrived, the editor read the first sentence and then refused to publish it. The article began "Hundreds of steps lead to the hight wall which surrouds the president's palace." The editor at once sent the journalist a fax instructing him to find out the extract number of steps and the height of the wall.
+
+The journalist immediately set out to obtain these important facts, but he took a long time to send them. Meanwhile the editor was getting impatient, for the magazine would soon go to press. He send the journalist two more faxes, but received no more reply. He sent yet another fax informing the journalist that if he did not reply he would be fired. When the journalist again failed to reply, the editor reluctantly published the article as it had originally been written. A week later, the editor at last received the fax from the journalist. Not only had the poor man been arrested, but he had been sent to prsion as well. However, he had at last been allowed to send a fax in which he informed the editor that he had been arrested while counting the 1084 steps leading to the fiteen-foot wall which surrouds the president's palace.
+
+# Smash and grab
+
+The expensive shops in a famous arcade near Piccadilly were just opening. At this time of morning, the arcade was almost empty. Mr. Taylor, the ower of the jewellery shop was admiring a new window display. Two of him assistments had been working busily since eight o'clock and had only just finished. Diamond necklaces and rings had been beautifully arranged on a background of black velvet. After gazing at the display for several minutes, Mr Taylor went back into his shop. 
+
+The silence was studdenly broken when a large car, with the headlights on and its horn blaring, roared down the arcade. It came to a shop outside the jeweller's. One man stayed at the wheel while two others with black stockings over their faces jumped out and smashed the window of the shop with iron bars. While this was going on, Mr. Taylor was upstairs. He and his staff began throwing furniture out of the window. Chairs and tables went flying into the arcade. One of the thieves was stuck by a heavy statue, but he was too busy helping himself to diamonds to notice any pain. The raid was all over in three minutes, for the man scrambled back into the car and it moved off at a fantastic speed. Just as it was leaving, Mr. Taylor rushed out and ran after it throwing ashtrays and vases, but it was impossible to stop the thieves. They had got away with thousands of pounds worth of diamonds.
