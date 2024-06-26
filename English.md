@@ -32,11 +32,7 @@ Editors of newspaper and magazines often go to extremes to provide thire readers
 
 The journalist immediately set out to obtain these important facts, but he took a long time to send them. Meanwhile the editor was getting impatient, for the magazine would soon go to press. He send the journalist two more faxes, but received no more reply. He sent yet another fax informing the journalist that if he did not reply he would be fired. When the journalist again failed to reply, the editor reluctantly published the article as it had originally been written. A week later, the editor at last received the fax from the journalist. Not only had the poor man been arrested, but he had been sent to prsion as well. However, he had at last been allowed to send a fax in which he informed the editor that he had been arrested while counting the 1084 steps leading to the fiteen-foot wall which surrouds the president's palace.
 
-# Smash and grab
 
-The expensive shops in a famous arcade near Piccadilly were just opening. At this time of morning, the arcade was almost empty. Mr. Taylor, the ower of the jewellery shop was admiring a new window display. Two of him assistments had been working busily since eight o'clock and had only just finished. Diamond necklaces and rings had been beautifully arranged on a background of black velvet. After gazing at the display for several minutes, Mr Taylor went back into his shop. 
-
-The silence was studdenly broken when a large car, with the headlights on and its horn blaring, roared down the arcade. It came to a shop outside the jeweller's. One man stayed at the wheel while two others with black stockings over their faces jumped out and smashed the window of the shop with iron bars. While this was going on, Mr. Taylor was upstairs. He and his staff began throwing furniture out of the window. Chairs and tables went flying into the arcade. One of the thieves was stuck by a heavy statue, but he was too busy helping himself to diamonds to notice any pain. The raid was all over in three minutes, for the man scrambled back into the car and it moved off at a fantastic speed. Just as it was leaving, Mr. Taylor rushed out and ran after it throwing ashtrays and vases, but it was impossible to stop the thieves. They had got away with thousands of pounds worth of diamonds.
 
 # Mutilated Ladies
 
